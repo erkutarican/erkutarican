@@ -1,4 +1,4 @@
-# Merhaba, Ben Erkut Arıcan! 👋
+# Merhaba, Ben Erkut Arıcan!
 
 **Akademisyen | Mühendis | Araştırmacı**
 
